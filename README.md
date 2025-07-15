@@ -1,4 +1,4 @@
-## Hi there 👋
+## You are a stranger to the world (a king of darkness) 👋
 
 <!--
 **dkjehedk/dkjehedk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
